@@ -1,2 +1,6 @@
 # Hello_World
 Eerste repo van 6ITN 2020
+
+jjdfzekvlemfkjzepfzepkùfjpfoepizeùfvjemokeriofomrjpojioé"rfogrj"pofvprof
+zrdfiopzerjfpofepjopmfokjnveprimjfpriorùfkjeprofjreiprjfripoeùtgpr^7
+jklrzemovja"p'ogia'jgo^é"irjpgioafé"potjphié"ozejmlvaer
